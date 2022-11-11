@@ -7,7 +7,10 @@
 
 - 📫 How to reach me: @davidsebaniski
 
-- 👷🏽‍♂️ LOOKING FOR A JOB !
+- 👷🏽‍♂️ ANALISTA DE DADOS!
+
+-Empresa: Digicob 
+
 
 
 
