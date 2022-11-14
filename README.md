@@ -23,4 +23,4 @@
 
 📫 Como me encontrar: @davidsebaniski
 
-👷🏽‍♂️ PROCURANDO UM EMPREGO!
+👷🏽‍♂️ ANALISTA DE DADO!
